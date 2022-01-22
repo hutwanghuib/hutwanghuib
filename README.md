@@ -1,4 +1,4 @@
-### Hi there 👋
+### Nature is the source of all our ideas. 👋
 
 <!--
 **hutwanghuib/hutwanghuib** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
